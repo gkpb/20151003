@@ -4,8 +4,8 @@
 10/3(土曜)
 
 ### 場所
-アメリカキャンプ村
-https://www.google.co.jp/maps/place/%E3%82%A2%E3%83%A1%E3%83%AA%E3%82%AB%E3%82%AD%E3%83%A3%E3%83%B3%E3%83%97%E6%9D%91/@35.8025159,139.1190405,19.25z/data=!4m2!3m1!1s0x0000000000000000:0x56efab2d6ec0c452
+アメリカキャンプ村：[サイト](http://www.xn--ccksg2ovbo0c7dt270e.com/)  
+場所：[Googleマップ](https://www.google.co.jp/maps/place/%E3%82%A2%E3%83%A1%E3%83%AA%E3%82%AB%E3%82%AD%E3%83%A3%E3%83%B3%E3%83%97%E6%9D%91/@35.8025159,139.1190405,19.25z/data=!4m2!3m1!1s0x0000000000000000:0x56efab2d6ec0c452)
 
 ### 参加者
 これから確認  
@@ -18,11 +18,14 @@ https://www.google.co.jp/maps/place/%E3%82%A2%E3%83%A1%E3%83%AA%E3%82%AB%E3%82%A
 駐車場代1000円  
 
 #### レンタカー  
-  ２日で21,384円	15,984円  
-  大体４万
+[ニッポンレンタカー](https://www.nipponrentacar.co.jp/service/wagon/index.htm)  
+W-A：ステップワゴン、ノア  
+24時間まで21,384円  
+以後1日毎に15,984円  
+ガソリン代を合わせて約４万
 
 #### キャンプ場料金
-http://www.xn--ccksg2ovbo0c7dt270e.com/tomari-M1.html  
+http://www.xn--ccksg2ovbo0c7dt270e.com/tomari-M2.html  
 ログハウスM-1から5のどれか  
 セミシーズン 40000+追加5000円
 
